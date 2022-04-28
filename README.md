@@ -98,4 +98,4 @@ OMGOMGOMG MARKETPLACE LINK ССЫЛКА ВХОД
 
 
 http://omgomgomg.xyz/
-OMG!OMG!OMG! вход на сайт, актуальная ссылка, омг!омг!омг!, ОМГОМГ, omgomgomg5, 
+OMG!OMG!OMG! вход на сайт, актуальная ссылка, омг!омг!омг!, ОМГОМГ, omgomgomg5.
